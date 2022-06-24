@@ -7,9 +7,9 @@ Your first task is a simple one, just clone this repo and open a pull request to
 
 The modification you perform itself will also be very simple:
 
-**1. Append a quote of your choice (can even be made-up) within quotations, followed by a tilde and the quote's author
+**1. Append a quote of your choice (can even be made-up) within quotations, followed by a tilde and the quote's author**
 
-**2. Append your name in brackets following that text
+**2. Append your name in brackets following that text**
 
 Like so,
 
