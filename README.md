@@ -1,4 +1,4 @@
-# Git_AND_GitHub_Tutorial
+# Git & GitHub Tutorial
 ## IEEE SusTech Branch - Project Team - Practice repo 💙 
 
 Hello, my name is Ibrahim and welcome to this practice repo 👋
