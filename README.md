@@ -21,3 +21,8 @@ Best of luck everyone! 😄
 "hello I like hacking things , yes i am here (Hisham abdelgadir) 'mr.k0anti' "
 
 "if you can dream it... you can do it" a.h.m ( ahmed Hussein)
+---------------------------------------------------------------
+
+"نحن هدفتا.....ما عندنا اي هدف"  ~ wise sayings (Abdalla yousif)
+
+
