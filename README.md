@@ -27,3 +27,5 @@ Best of luck everyone! 😄
 "stay strong for yourself" (samar omer)
 
 "friends dont lie"11(Remaz Ahmed)
+
+" Make memories that last forever and cherish every moment " (ZAHRA MOSBAL):)
