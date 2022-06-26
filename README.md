@@ -25,4 +25,4 @@ Best of luck everyone! 😄
 
 "نحن هدفتا.....ما عندنا اي هدف"  ~ wise sayings (Abdalla yousif)
 
-
+"friends dont lie"11(Remaz Ahmed)
