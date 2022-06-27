@@ -28,4 +28,6 @@ Best of luck everyone! 😄
 
 "friends dont lie"11(Remaz Ahmed)
 
+"When it comes to success there are no shortcuts you have to take the hard way ;)" (Mohamed Ibrahim) 'abusin'
+
 " Make memories that last forever and cherish every moment " (ZAHRA MOSBAL):)
