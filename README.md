@@ -31,3 +31,23 @@ Best of luck everyone! 😄
 "When it comes to success there are no shortcuts you have to take the hard way ;)" (Mohamed Ibrahim) 'abusin'
 
 " Make memories that last forever and cherish every moment " (ZAHRA MOSBAL):)
+
+-----------------------------------------------------------------------------------------
+### Well done everyone who submitted a quote for the first task! :smiley: :+1:
+
+Now, onto the second task. This task's goals are threefold;
+
+**1. Pushing and committing to a repo that is entirely your own**
+
+You should create a repository (preferrably public), and add something to it.
+
+**2. Adding collaborators to work with you, on your own repo**
+
+You should add me as a collaborator on your repo
+
+**3. Creating branches within a repo**
+
+You should create another branch on your repo, in which I will add some changes to the contents you pushed. You will then proceed to merge the two branches
+
+Once again, best of luck everybody! 😄
+---------------------------------------------------------------
